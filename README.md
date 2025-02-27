@@ -30,7 +30,13 @@ the internet's (apparently) biggest fucking larp in the last 3 (or so? i don't k
 <br>
 ℹ: i have no words for him he's just a sad piece of human trash
 </details>
+<details>
+<summary> Ninfo/NinfoStudios: some fat brickhill retard who claims he's mentally insane but fakes it for pity points </summary>
+<br>
+ℹ: his friends are either groomed femboys, trannies, or people who still need diapers, obviously there's people who are exceptions but if he's gonna be a dick he should do it right.
+</details>
 
 if ur on here sry not sry u did it to urself
 
 ![chiefkeef-smokingtooka](https://github.com/user-attachments/assets/b360e5fc-00bb-4687-ba73-2f4b9fea20b1)
+<h3>i'm laffin 2 da bank, yea, hahaha</h3>
