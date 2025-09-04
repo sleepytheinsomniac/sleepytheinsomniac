@@ -21,7 +21,7 @@ the internet's (apparently) biggest fucking larp in the last 3 (or so? i don't k
 ℹ: i feel bad for this kid's parents, having to birth a failure
 </details>
 <details>
-<summary>  ItsNicoshi/nicoshicoderu: biggest fucking tranny mindest in human history, literally had a couple of my friends believe i was transphobic </summary>
+<summary>  ItsNicoshi/nicoshicoderu: biggest fucking tranny in human history, literally had a couple of my friends believe i was transphobic </summary>
 <br>
 ℹ: if you see him or know him harass or talk shit to or about him
 </details>
